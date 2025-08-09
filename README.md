@@ -1,1 +1,1 @@
-Visit my portfolio at: https://mohamedshuaib.github.io
+Visit my portfolio at: https://shuayyy.github.io/mohamedshuaib.github.io/
